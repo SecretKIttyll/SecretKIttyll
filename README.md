@@ -1,5 +1,5 @@
-####   　　　　　 　 　　　　　 　  　　  cred　:　Sam4lmk
-<img width="2048" height="1307" alt="1000013314" src="https://github.com/user-attachments/assets/bdf5545b-e4d3-4c83-8b84-2d0c54d2deb9" />
+I am NOT doing the image
+
 <div < align="center">   　　 　　　　　 　　 　　　　　 
 <br>
 <br>
