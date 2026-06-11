@@ -36,7 +36,7 @@ $\color{#cfc1ae}{\textsf{ sign straw :)　 }}$<img width="20" height="20" alt="1
 hello there <img width="20" height="20" alt="1000014088" src="https://github.com/user-attachments/assets/5d095333-8a0f-4360-b09f-4926d61625ce" />
 
 
-not rlly active just taking an break from pt -_-
+
 
 </details>
   <br>
