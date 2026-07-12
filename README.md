@@ -30,7 +30,7 @@
    <details>
         <summary>$\color{#fcfffa}{\textsf{about me }}$</summary>hi I'm auell / jazy  I go by she/they but any prns are fine, I'm pan • demi  I'm shy PERSON and feel free to interact w me i don't mind it I'm very offtab • busy at the time 
      please w2i is very preferred when I'm afk • offtab   
-       I am Southeast Asian person  and I also speak eng is one of my main language (is NOT my first language either since my spellings and my grammar might be Bad.   that all) 
+       I am Southeast Asian person  and I also speak eng is one of my main language (is NOT my first language either since my spellings and my grammar might be Bad.   that all （｡>‿‿<｡ ）
 
 
 ㅤㅤㅤㅤㅤ
