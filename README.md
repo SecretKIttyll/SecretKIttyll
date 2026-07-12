@@ -29,19 +29,5 @@ $\color{#cfc1ae}{\textsf{ sign straw :)　 }}$<img width="20" height="20" alt="1
     </tr>
   </table>
   --------
-  <details>
 
-<summary> important note </summary>
-
-is been while since I changed this repository but here we go, I just wanted to annouce something. I been mostly likely thinking about if I should just take more break from ponytown but I still decided that I'm quitting yeah. I Am quitting from ponytown. I'm going to just remove it and just simply move on.   I will just keep this abandoned or not.            I don't want anyone just asking why I am quitting.               also one last goodbye is that  I really truly ilke these memories about me     but now bye bye ponytown!!
-
-
-
-
-</details>
-  <br>
-          <br>
-      </td>
-    </tr>
-  </table>
   
